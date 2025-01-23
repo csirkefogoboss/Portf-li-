@@ -1,0 +1,2 @@
+# Portf-li-
+Ipari informatikus
